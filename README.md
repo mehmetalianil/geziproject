@@ -1,4 +1,4 @@
-geziproject
+GeziProject
 ===========
 
 Gezi parkı ile başlayan protestolara bizzat katıldım. Protestolar sırasında yaşadığım sorunların bazılarına çözüm üretebileceğimizi duşunuyorum. Sadece protesto ederek katılmak yeterli olmamalı, bu nedenle aklıma gelen fikirleri tartışmaya açmak istiyorum. Bu tartışmalardan çözüm üreten projeler çıkmasını umuyorum. Protestolar dünyanın her yerinde var olmaya devam edecek, bence bu tarz yardımcı projeler ile etkileri güçlenecek ve olumsuzluklar önlenebilecek. Gezi parkı protestolarında onaylamadığım ve oradaki halkın da onaylamadığını bildiğim bir çok olay oldu. Bu olayların bazılarına mudehale ederek önlemeyi basardık(Kamu malına zarar vermek, taskınlık ve provokasyon yapmak gibi). Bu önerim ile protesyoların kucuk grupların yaptıgı taskınlıkları azaltmasını ve amacından taşmadan yürümesine yardımcı olmasını umuyorum.
